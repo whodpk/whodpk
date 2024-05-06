@@ -32,7 +32,8 @@ Hey there! I'm whodpk, your friendly neighborhood data analyst passionate about 
 
 Looking to collaborate on a project or just geek out over data? Feel free to reach out! You can find me on:
 - [LinkedIn](https://www.linkedin.com/in/deepak-kumar-yadav-6b2b77271?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
-- [Instagram](https://www.instagram.com/_whodpak_?igsh=MWxkcHQwaG1ud3Q0OA==)
+- [Instagram](![WhatsApp Image 2024-05-06 at 18 08 52_1afb7d83](https://github.com/whodpk/whodpk/assets/169054171/0fc4aa16-0eb4-4c29-8c35-ce8a8faeb2fc)
+
 - [Facebook](https://www.facebook.com/profile.php?id=100010938426482&mibextid=ZbWKwL)
 
 Let's turn data into insights together! 🚀
